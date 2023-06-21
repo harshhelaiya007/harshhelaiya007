@@ -1,4 +1,5 @@
 # Harshhelaiya
+<img src="./LinkedIn%20cover.jpg" />
 
 ## 🌐 Socials
 
